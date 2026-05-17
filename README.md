@@ -1,1 +1,1 @@
-new project is comming soon
+a new project for school page
